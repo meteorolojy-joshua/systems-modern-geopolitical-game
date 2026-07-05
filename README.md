@@ -1,1 +1,1 @@
-# systems-geopolitical-game
+# systems-geopolitics-game
