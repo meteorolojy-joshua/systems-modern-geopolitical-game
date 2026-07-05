@@ -1,1 +1,1 @@
-# systems-modern-geopolitical-game
+# systems-geopolitical-game
